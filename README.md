@@ -1,4 +1,4 @@
-A Whatsapp Bot Create By 🕋MyHeaven🕋
+A Whatsapp Bot Created By 🕋MyHeaven🕋
 
 Facebook
 @786myheaven786
